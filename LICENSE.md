@@ -1,4 +1,4 @@
-#  
+#  best Script for scary shawarma kiosk is the best scary shawarma kiosk Script, featuring silent aim and no cooldown. Safe and powerful for all your
 
 
 
